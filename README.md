@@ -1,1 +1,0 @@
-# hagisako-takeru
